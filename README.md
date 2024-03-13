@@ -5,19 +5,15 @@ Welcome to the Uncensored Hidden Wiki GitHub repository, a community-driven dire
 This repository serves as a valuable resource for individuals interested in exploring the hidden corners of the internet while emphasizing privacy and security.
 ***********
 **MOST POPULAR UNCENSORED HIDDEN WIKI LINKS IN 2024**
+
 1. **Dark Mixer** – Anonymous Bitcoin mixer http://cr32aykujaxqkfqyrjvt7lxovnadpgmghtb3y4g6jmx6oomr572kbuqd.onion/
-   
-2.**Dark Web Hackers** – Dark Web Hackers For Hire http://zkj7mzglnrbvu3elepazau7ol26cmq7acryvsqxvh4sreoydhzin7zid.onion/
-
-3.**Mixabit** – Bitcoin mixer http://74ck36pbaxz7ra6n7v5pbpm5n2tsdaiy4f6p775qvjmowxged65n3cid.onion/
-
+2. **Dark Web Hackers** – Dark Web Hackers For Hire http://zkj7mzglnrbvu3elepazau7ol26cmq7acryvsqxvh4sreoydhzin7zid.onion/
+3. **Mixabit** – Anonymous Bitcoin mixer http://74ck36pbaxz7ra6n7v5pbpm5n2tsdaiy4f6p775qvjmowxged65n3cid.onion/
 4. **Onion Wallet** – Anonymous, secure Bitcoin wallet & mixer http://zwf5i7hiwmffq2bl7euedg6y5ydzze3ljiyrjmm7o42vhe7ni56fm7qd.onion/
-
 5. **Account market** – Premium Paypal, Ebay and bank accounts. http://z7s2w5vruxbp2wzts3snxs24yggbtdcdj5kp2f6z5gimouyh3wiaf7id.onion/
-
 6. **TomAndJerry** – Recreational pharma from NL http://c5xoy22aadb2rqgw3jh2m2irmu563evukqqddu5zjandunaimzaye5id.onion/
+7. **Cardshop** – USA/Worldwide CC - CVV & Known Balance http://f6wqhy6ii7metm45m4mg6yg76yytik5kxe6h7sestyvm6gnlcw3n4qad.onion/
 
-7. **Cardshop** – USA CVV KNOWN BALANCE & Worldwide CC & CVV http://f6wqhy6ii7metm45m4mg6yg76yytik5kxe6h7sestyvm6gnlcw3n4qad.onion/
 
 ***********
 **Overview**
