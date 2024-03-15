@@ -41,6 +41,7 @@ Spread Awareness: Promote awareness about online privacy and security by sharing
 
 Get Started
 
-To start exploring the Uncensored Hidden Wiki repository and accessing a curated list of darknet resources, visit Uncensored Hidden Wiki GitHub. Join our community-driven initiative to navigate the hidden corners of the internet responsibly and securely.
+To start exploring the Uncensored Hidden Wiki repository and accessing a curated list of darknet resources, visit Uncensored Hidden Wiki GitHub. Join our community-driven initiative to navigate the hidden corners of the internet responsibly and securely. We regularly update our verified list of darknet markets and services with links for educational reference.
+
 For more information and updates, feel free to explore related topics such as onion-links and onion-sites on GitHub.
 Thank you for being part of our community dedicated to promoting online privacy and security in the digital age. Happy exploring!
