@@ -3,6 +3,9 @@
 Uncensored Hidden Wiki GitHub Repository – Your Portal to Unrestricted Exploration on the Tor Network!
 Welcome to the Uncensored Hidden Wiki GitHub repository, a community-driven directory of uncensored onion services accessible on the Tor network. 
 This repository serves as a valuable resource for individuals interested in exploring the hidden corners of the internet while emphasizing privacy and security.
+The Uncensored Hidden Wiki is an open, community-driven directory of uncensored onion services accessible on the Tor network. This repository serves as the central hub for maintaining and updating the list of onion addresses, providing users with unrestricted access to the diverse content available on the deep and dark web.
+
+
 ***********
 **MOST POPULAR UNCENSORED HIDDEN WIKI LINKS IN 2024**
 
@@ -44,4 +47,6 @@ Get Started
 To start exploring the Uncensored Hidden Wiki repository and accessing a curated list of darknet resources, visit Uncensored Hidden Wiki GitHub. Join our community-driven initiative to navigate the hidden corners of the internet responsibly and securely. We regularly update our verified list of darknet markets and services with links for educational reference.
 
 For more information and updates, feel free to explore related topics such as onion-links and onion-sites on GitHub.
-Thank you for being part of our community dedicated to promoting online privacy and security in the digital age. Happy exploring!
+Thank you for being part of our community dedicated to promoting online privacy and security in the digital age. Happy exploring! The Uncensored Hidden Wiki is intended for informational purposes only. Inclusion on this list does not imply endorsement. Users should exercise caution and adhere to legal and ethical guidelines when exploring the Tor network.
+
+
