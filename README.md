@@ -1,4 +1,4 @@
-![Uncensored Hidden Wiki 2025](uncensored-hidden-wiki-links.png)
+![Uncensored Hidden Wiki 2025](hidden-wiki-links-2025.png)
 # uncensored-hidden-wiki
 Uncensored Hidden Wiki GitHub Repository – Your Portal to Unrestricted Exploration of .onion links on the Tor Network!
 Welcome to the Uncensored Hidden Wiki GitHub repository, a community-driven directory of uncensored onion services accessible on the Tor network. 
