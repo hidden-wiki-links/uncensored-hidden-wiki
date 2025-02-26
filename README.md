@@ -1,4 +1,4 @@
-![Uncensored Hidden Wiki 2024](uncensored-hidden-wiki-links.png)
+![Uncensored Hidden Wiki 2025](uncensored-hidden-wiki-links.png)
 # uncensored-hidden-wiki
 Uncensored Hidden Wiki GitHub Repository – Your Portal to Unrestricted Exploration of .onion links on the Tor Network!
 Welcome to the Uncensored Hidden Wiki GitHub repository, a community-driven directory of uncensored onion services accessible on the Tor network. 
@@ -7,7 +7,7 @@ The Uncensored Hidden Wiki is an open, community-driven directory of uncensored 
 
 
 ***********
-## MOST POPULAR UNCENSORED HIDDEN WIKI LINKS IN 2024
+## MOST POPULAR UNCENSORED HIDDEN WIKI LINKS IN 2025
 
 1. **Dark Mixer** – Anonymous Bitcoin mixer http://cr32aykujaxqkfqyrjvt7lxovnadpgmghtb3y4g6jmx6oomr572kbuqd.onion/
 2. **Dark Web Hackers** – Dark Web Hackers For Hire http://zkj7mzglnrbvu3elepazau7ol26cmq7acryvsqxvh4sreoydhzin7zid.onion/
@@ -17,7 +17,7 @@ The Uncensored Hidden Wiki is an open, community-driven directory of uncensored 
 6. **TomAndJerry** – Recreational pharma from NL http://c5xoy22aadb2rqgw3jh2m2irmu563evukqqddu5zjandunaimzaye5id.onion/
 7. **Cardshop** – USA/Worldwide CC - CVV & Known Balance http://f6wqhy6ii7metm45m4mg6yg76yytik5kxe6h7sestyvm6gnlcw3n4qad.onion/
 
-**Updated for November 2024**
+**Updated for March 2025**
 ***********
 **Overview**
 
